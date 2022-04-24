@@ -1,5 +1,5 @@
 # profile
-OlSiga-me entre outras redes sociais!
+Olá! Siga-me entre outras redes sociais!
 
 Now you can buy me a coffee!
 
